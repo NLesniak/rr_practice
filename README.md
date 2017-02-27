@@ -1,2 +1,2 @@
-# rr_practice
+# README
 Repository to practice reproducibility
