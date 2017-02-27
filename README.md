@@ -9,7 +9,7 @@ Instructions on how to fold a paper :airplane:
 3. At one of the short ends, fold both corners into the center crease to form 45 degree folds
 4. Fold about 1 inch of the newly created point back towards the unfolded end to form a blunt end
 5. Fold the paper in half along the long crease created in step 2
-6. Fold about 3 inches down on each side
+6. Fold the sides down on each side, about 1 inch from the long folded edge
 7. Throw it high, see it fly :airplane: 
 8. Profit :exclamation::exclamation::exclamation::exclamation::exclamation::exclamation:  
 :+1::+1::+1::+1::+1::+1::+1::+1::+1::+1::+1::+1:
