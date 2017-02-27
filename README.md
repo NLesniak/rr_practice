@@ -11,5 +11,5 @@ Instructions on how to fold a paper :airplane:
 5. Fold the paper in half along the crease created in step 2
 6. Fold about 3 inches down on each side
 7. Throw it high, see it fly :airplane: 
-8. Profit :exclamation::exclamation::exclamation::exclamation::exclamation::exclamation:
-:+1::+1::+1::+1:
+8. Profit :exclamation::exclamation::exclamation::exclamation::exclamation::exclamation:  
+:+1::+1::+1::+1::+1::+1::+1::+1::+1::+1::+1::+1:
